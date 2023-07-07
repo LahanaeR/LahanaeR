@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @LahanaeR
 - 👀 I’m interested in all things Analytics 
 - 🌱 I’m currently learning Data Analytics
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on Contract opportunities 
 - 📫 How to reach me Linkedin @https://www.linkedin.com/in/lashanae-r-590429b7/
 
 <!---
